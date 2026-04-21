@@ -7,7 +7,7 @@
 ##### [rentry](https://rentry.co/iamstormz) 🌻 [ata!](https://empire.atabook.org/) 🍀 [prns cc](https://pronouns.cc/@wdaswadd)  🗡  [BYI](https://rentry.co/sea4) 
 
 <p align="center"
-
+  
 <img
         src="https://file.garden/aOJ36JVloELMsNXO/Untitled780_20260421001120.png" 
         width=70%
@@ -16,3 +16,16 @@
 <p align="center"
 
 ART BY MY BSF!! [@926204819739](https://github.com/926204819739)
+<p align="center"
+  
+hi whiske =w= [@whiske](https://github.com/WhiskersDream)
+<p align="center"
+
+<img
+        src="https://file.garden/aOJ36JVloELMsNXO/Untitled784_20260421131721.png" 
+        width=70%
+        title="whiske"
+        alt="whiske" >
+<p align="center"
+
+art by 
