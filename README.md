@@ -4,7 +4,7 @@
 
 <p align="center"
   
-##### [rentry](https://rentry.co/iamstormz) 🌻 [ata!](https://empire.atabook.org/) 🍀 [prns cc](https://pronouns.cc/@planet)  🗡  [BYI](https://rentry.co/sea4) 
+##### [rentry](https://rentry.co/iamstormz) 🌻 [ata!](https://empire.atabook.org/) 🍀 [prns cc](https://pronouns.cc/@wdaswadd)  🗡  [BYI](https://rentry.co/sea4) 
 
 <p align="center"
 
