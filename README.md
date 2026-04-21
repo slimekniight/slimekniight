@@ -3,3 +3,5 @@
 ill deco this later im so tired bruh
 
 hi imkaz i have bpd i go by hehim oly umm im dry like 99% of the time hi sig my ata
+
+[byi](https://rentry.co/sea4)
