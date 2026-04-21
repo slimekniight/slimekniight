@@ -9,7 +9,7 @@
 <p align="center"
 
 <img
-        src="https://files.catbox.moe/4ahg3x.png" 
+        src="https://files.catbox.moe/xkbdsd.png" 
         width=70%
         title="My Image"
         alt="My Image" >
