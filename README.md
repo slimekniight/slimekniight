@@ -28,4 +28,4 @@ hi whiske =w= [@whiske](https://github.com/WhiskersDream)
         alt="whiske" >
 <p align="center"
 
-art by 
+art by [faith](https://x.com/cheescakelrker?s=21) , [lee](https://x.com/lee_in_plut0?s=21) , [simon](https://x.com/simon28_07?s=21)
