@@ -18,16 +18,3 @@ this is my arg gh hai
 <p align="center"
 
 ART BY MY BSF!! [@926204819739](https://github.com/926204819739)
-<p align="center"
-  
-hi whiske =w= [@whiske](https://github.com/WhiskersDream)
-<p align="center"
-
-<img
-        src="https://file.garden/aOJ36JVloELMsNXO/Untitled784_20260421131721.png" 
-        width=70%
-        title="whiske"
-        alt="whiske" >
-<p align="center"
-
-art by [faith](https://x.com/cheescakelrker?s=21) , [lee](https://x.com/lee_in_plut0?s=21) , [simon](https://x.com/simon28_07?s=21)
